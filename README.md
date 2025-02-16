@@ -1,1 +1,1 @@
-xsxinghen.github.io
+[xsxinghen.us.kg](xsxinghen.us.kg)
