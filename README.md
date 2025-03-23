@@ -1,3 +1,3 @@
-[我的home](https://home.313579.xyz/)
-[我的blog](https://blog.313579.xyz/)
-[我的tvbox](https://tvbox.313579.xyz/)
+[我的home](https://home.xsxh.ddns-ip.net/)
+[我的blog](https://blog.xsxh.ddns-ip.net/)
+[我的tvbox](https://tvbox.xsxh.ddns-ip.net/)
